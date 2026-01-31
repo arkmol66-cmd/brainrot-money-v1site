@@ -8,5 +8,7 @@ os requisitos são
 2. se roubar algo ban
 3. se falar palavão BAN
 4. se usra outra conta de usuario ban
+# HACK
 SE USAR HACK BAN PARA SEMPRER 
-SE VENTER ALGO BAN 
+# VENDER 
+SE VENDER ALGO BAN 
