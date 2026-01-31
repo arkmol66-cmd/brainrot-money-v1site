@@ -1,4 +1,4 @@
-# brainrot-money-v1site
+# brainrot money TERMOS DE USO
 termos
 nos temos ate 1 ano para enguergar seu login 
 casso compre algo seu money não sera gasto seu dineiro mais a moeda sim 
